@@ -1,4 +1,5 @@
 # Terms of Use
+No! What are you doing??? You can't just mess with the legal stuff, that's illegal!
 
 ### Preamble
 
